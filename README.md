@@ -1,5 +1,7 @@
 **UPDATED GUIDELINES**
+
 Updated 7/30/15
+
 Welcome to Tsum Premium Gifters!
 
 We are a friendly group of high volume heart senders.
